@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi. Im Yusuf Ramadani!
 im currently studying
 
 
